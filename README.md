@@ -2,7 +2,7 @@
 
 **`Técnico em Informática`**
 
-Olá, sou Lucas Sousa. Tenho 30 anos e sou apaixonado por tecnologia, desenvolvimento web e soluções digitais. Estou sempre aprendendo novas ferramentas e criando projetos para evoluir minhas habilidades. [UISE XP](https://www.instagram.com/uisexp/). 🚀
+Olá, Me chamo Lucas. Tenho 30 anos e sou apaixonado por tecnologia, desenvolvimento web e soluções digitais. Estou sempre aprendendo novas ferramentas e criando projetos para evoluir minhas habilidades. [UISE XP](https://www.instagram.com/uisexp/). 🚀
 
 <p align="left">
 <a href="https://www.linkedin.com/in/lucas-sousa-ti/">
